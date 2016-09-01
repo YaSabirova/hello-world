@@ -1,5 +1,4 @@
 # hello-world
-Honoring traditions
 
 Hey Humans!
 Yana's here. I like Art and Sarcasmscreepts (that's what I'm made of!). 
